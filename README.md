@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Radiv Coin
+- 👀 I’m interested in develop radiv coin
+- 🌱 I’m currently learning to share in kindness
+- 💞️ I’m looking to collaborate on Radiv Coin
+- 📫 How to reach me https://linktr.ee/radivcoin
